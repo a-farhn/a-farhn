@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on u
 - 📫 How to reach me dknow
 - 😄 Pronouns: berak
-- ⚡ Fun fact: everything goes on, -kecuali kamu hehe
+- ⚡ Fun fact: everything goes on, -kecuali kamu ga ada goes"nya hehe babi
 
 <!---
 a-farhn/a-farhn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
