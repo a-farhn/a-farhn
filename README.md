@@ -1,11 +1,9 @@
 - 👋 Hi, I’m @a-farhn
-- 🤰 sorry for entering ur life
-- 👀 I’m interested in u
-- 🌱 I’m currently learning u
+- 👀 I’m interested in nothing
 - 💞️ I’m looking to collaborate on u
-- 📫 How to reach me dknow
+- 📫 How to reach me give me coffee
 - 😄 Pronouns: berak
-- ⚡ Fun fact: everything goes on, -kecuali kamu ga ada goes"nya hehe babi
+- ⚡ Fun fact: everything goes on, -kecuali kamu ga ada goes"nya hehe b4bi
 
 -Achmad Farhan Tumenggung 
 -Nim  : 211011700301
