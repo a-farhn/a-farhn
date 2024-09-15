@@ -10,7 +10,7 @@
 -Achmad Farhan Tumenggung 
 -Nim  : 211011700301
 -Kelas: 07SIFP002
--Umur : Ga ada yg tau canda lgi hehe🙏
+-Umur : Ga ada yg tau hehe canda pa🙏
 
 *🙏 Maaf bercanda pak* 
 
