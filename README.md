@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @a-farhn
+- 🤰 sorry for entering ur life
 - 👀 I’m interested in u
 - 🌱 I’m currently learning u
 - 💞️ I’m looking to collaborate on u
