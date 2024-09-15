@@ -6,6 +6,7 @@
 - 😄 Pronouns: berak
 - ⚡ Fun fact: everything goes on, -kecuali kamu ga ada goes"nya hehe babi
 
+*🙏 Maaf bercanda pak*
 <!---
 a-farhn/a-farhn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
